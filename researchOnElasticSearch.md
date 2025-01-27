@@ -1,4 +1,4 @@
-# Research Title
+# Elastic Search 
 
 A brief overview of different types of elastic search, such as Elasticsearch, Solr and Lucene.
 
