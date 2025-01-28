@@ -21,8 +21,8 @@ It gives you good motivation and thrives you to make that tiny habit into routin
 
 ## In this video, what was the most interesting story or idea for you?
 
-** "The aggregation of marginal gains."
-** The concept of making 1% better a day will compund us 37 times in year.
+    "The aggregation of marginal gains."
+    The concept of making 1% better a day will compund us 37 times in year.
 
 ## What is the book's perspective about Identity?
 
