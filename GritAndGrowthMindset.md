@@ -2,7 +2,7 @@
 
 ## Grit
 
-1. Living a life like marathon and not a 100 meter dash is Grit.
+1. Living a life is like marathon and not a 100 meter dash is known as Grit.
 2. Grit is following through daily short term commitments and not rely on the talent.
 
 ## Growth Mindset
@@ -12,13 +12,13 @@
 
 ## Internal Locus of Control
 
-1. The degree to which you believe you have control over your life
+1. The degree to which you believe you have control over your life.
 2. Always take 100% responsibilty for your failure and success. Do not blame on the external factors.
 
 ## How to build a Growth Mindset
 
-1. Believe in yourself to figure things out.
-2. Believe in yourself, that I can get better.
+1. Believe in yourself, to figure things out.
+2. Believe in yourself, that I can get better each day.
 3. Question the assumption you have for yourself, which restricts you to learn new skills and kill them.
 4. Always embrace the failure and discourage. It makes you a better person personally.
 
