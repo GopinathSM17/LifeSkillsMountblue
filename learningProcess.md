@@ -2,11 +2,11 @@
 
 ## What is the Feynman Technique?
 
-To learn something faster and understand well, Feynman say to explain it others.
+To learn something faster and understand well, Feynman say to explain it to others.
 
 ## In this video, what was the most interesting story or idea for you?
 
-The idea of sleeping in a chair with a key by Salvator Dali while stuck with any problem with his paintings.
+The idea of sleeping in a chair with a key by Salvator Dali while stuck with any problem with his paintings. 
 
 ## What are active and diffused modes of thinking?
 
@@ -25,8 +25,4 @@ The idea of sleeping in a chair with a key by Salvator Dali while stuck with any
 1. To reduse distraction, I will keep my phone silent during working hours.
 2. Work when I work and play when I need to play will be my top priority,
 3. when learning a new topic, I will try to practice what I learned and not just see videos and read blogs.
-
-
-
-
 
