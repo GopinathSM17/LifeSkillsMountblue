@@ -12,7 +12,7 @@ I feel myself in the stress quadrant, when I get anger because of my own lack of
 
 When I complete a task within a deadline will make me feel satisfied which says I'm in the Excitement quadrant.
 
-## 4. Paraphrase the Sleep is your Superpower video in your own words in brief. Only the points, no explanation.
+## 4. Paraphrase the Sleep is your Superpower video in your own words in brief.
 
 1. Have good sleep before the start of learning new things.
 2. Hippocampus is a tiny part of our human brain which stores new information.
@@ -26,7 +26,7 @@ When I complete a task within a deadline will make me feel satisfied which says 
 2. No phone or laptop 45 minutes before going to the bed.
 3. Schedule the day and week sufficient for sleep hours.
 
-## 6. Paraphrase the video - Brain Changing Benefits of Exercise. Minimum 5 points, only the points.
+## 6. Paraphrase the video - Brain Changing Benefits of Exercise.
 
 1. Prefrontal Cortex - It is situated right before the forehead, critical to make decision, focus and attention. 
 2. Hipoocampus - It has the ability to store long term memory, facts and events.
